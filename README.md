@@ -3,6 +3,6 @@
 
 
 -  How to reach me:
-   - 😸 GitHub: https://github.com/zJohNNy
+   - 😸 GitHub: https://github.com/sJohNNy12
    - 📷 Instagram: https://www.instagram.com/joao_s.12
    - 🐦 Twitter: https://twitter.com/nadapaveraki
