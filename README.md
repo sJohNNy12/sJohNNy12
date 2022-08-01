@@ -1,5 +1,5 @@
 -  Hi, I’m João
--  I'm currently taking a degree in computer engineering at ISEC
+-  I'm currently taking a bachelor in computer engineering at ISEC
 
 
 -  How to reach me:
